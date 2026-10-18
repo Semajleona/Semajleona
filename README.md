@@ -1,3 +1,4 @@
+<img width="2056" height="765" alt="Neon Purple Software Engineer Banner" src="https://github.com/user-attachments/assets/85dab17c-10b4-4f7c-be0b-0d4f6be01128" />
 
 
 Hi, I'm Semaj 👋🏾
